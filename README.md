@@ -1,0 +1,2 @@
+# -gReport
+EĞİTİM ODAKLI YAPILMIŞTIR!!!
